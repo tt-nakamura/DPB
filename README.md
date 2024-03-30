@@ -172,7 +172,7 @@ Soon some policemen and medical officers got there.
 First they removed the mosquito net, 
 took off his blanket and nightclothes, and examined all of his body.
 While examining, one of the policemen stared at me all the time,
-which was creepy and uncomfortable to me.
+which was creepy and unpleasant to me.
 Another policeman discovered a purple dent which ran linearly
 on the top of professor B's bald head.
 The policeman looked tense.
@@ -182,10 +182,9 @@ made of brass, which touched his head.
 Near the water glass on the desk, there was a paper envelope
 which a policeman picked up and examined.
 I saw a scrawl "Veronal" written with red ink on the envelope.
-The waiter was summoned and testified as follows.
-Professor B told the waiter to buy and bring this Veronal, 
-a sleeping drug, on the night before that morning.
-When the waiter brought it, he demanded larger amount.
+The policemen summoned the waiter, who testified as follows. Last night,
+professor B told the waiter to buy and bring this Veronal, a sleeping drug.
+When the waiter brought some amount of the drug, he demanded larger amount.
 The waiter advised him that taking too large amount of drug 
 would be bad for the health. But he begged the waiter to bring more,
 because he couldn't sleep and would go mad if he didn't take such amount.
